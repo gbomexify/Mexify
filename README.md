@@ -7,4 +7,4 @@
 ## Socials
 - Twitter: @gbomexify
 - Telegram: @gbomexify
-- Discord: Mex#6968
+- Discord: Mexify#6968
